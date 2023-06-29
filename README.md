@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Amanzhol09
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning IT
-- 💞️ I’m looking to collaborate on dizains
+- 💞️ I’m looking to collaborate on big companies
 - 📫 How to reach me 87753886246
 
 <!---
